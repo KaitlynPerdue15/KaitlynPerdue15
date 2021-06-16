@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KaitlynPerdue15
+- 👀 I’m interested in singing, art, animals, cooking and baking, swiming, and horseriding😁
+- 🌱 I’m currently learning how to survive highschool😭
+- 💞️ I’m looking to collaborate on i dont collaberate😑
+- 📫 How to reach me no clue🙃
